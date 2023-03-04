@@ -1,1 +1,1 @@
-# Netology diploma work
+# Netology graduate work
